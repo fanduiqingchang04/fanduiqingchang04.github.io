@@ -10,7 +10,8 @@ permalink: /about/
 
 ### 这些并不能阻挠我们抗争的决心，我们将继续团结一心，并肩战斗，正义的力量是打不垮的!
 
-### 本网站将持续记录佳士工人建会斗争过程，实时报道佳士工友和声援团人士的最新情况，请所有社会热心人士帮助传播扩散，投稿宣传，共同营救工人同胞！
+### 本网站将持续记录佳士工人建会斗争过程，实时报道佳士工友和声援团人士的最新情况，请所有社会热心人士帮助传播扩散，投稿宣传，共同营救工人同胞！目前最新网址更新为[https://jiashigrsyt.github.io](https://jiashigrsyt.github.io) ,已更新最新消息，请广大热心同志查看。
+
 
 ### 联系邮箱：[jiashishengyuantuan@gmail.com](mailto:jiashishengyuantuan@gmail.com)
 
